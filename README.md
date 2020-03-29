@@ -8,5 +8,5 @@
  Let the *DEATHLY HALLOWS* be reality!
  
  
- ![image of invisibility](https://github.com/imakshit/The-Invisibility-Cloak/blob/master/invisibility_proof.mp4)
+ ![image of invisibility](https://github.com/imakshit/The-Invisibility-Cloak/blob/master/proof_of_invisibility.gif)
  
